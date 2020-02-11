@@ -1,7 +1,7 @@
 # Buy-his-shitcoin
 
 
-！[巴菲特合影][https://raw.githubusercontent.com/Jeejune/Photos/master/EQGLZMeWsAAtUi9.jpg]
+！[巴菲特合影](https://raw.githubusercontent.com/Jeejune/Photos/master/EQGLZMeWsAAtUi9.jpg)
 
 
 
