@@ -3,7 +3,7 @@
 
 ！[巴菲特合影](https://raw.githubusercontent.com/Jeejune/Photos/master/EQGLZMeWsAAtUi9.jpg)
 
-
+![avatar](https://raw.githubusercontent.com/Jeejune/Photos/master/EQGLZMeWsAAtUi9.jpg)
 
 * eToro创始人兼CEO：Yoni Assia
 * 币安慈善负责人：海宇（Helen Hai）
